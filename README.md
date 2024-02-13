@@ -1,0 +1,1 @@
+Study solid principles
